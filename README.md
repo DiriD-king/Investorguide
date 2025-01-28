@@ -7,6 +7,7 @@ How did Elon Musk get to where he is today at the top of the ladder? I'll tell y
 
 <script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-5311105466084896"
      crossorigin="anonymous"></script>
+
      **How do I get paid**
 Now, let's talk about how much you will be earning.
 Investing in companies is where the gold is at! You can earn anywhere from *$4000-$1000000* a month and even more! depending on your investing capital, the company and a couple other factors.
@@ -20,9 +21,10 @@ Well, firstly, I'll advice not to rush things.
 - Also find out when their shares would be available to the public
 - Investment is all about risk, so invest with the highest you are willing to risk (dont forget the higher your investment, the higher the risk and outcome)
 - And importantly, you should be well vested with adequate knowledge of the necessary laws regarding acquisition company shares in your country
-  
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-5311105466084896"
+
+  <script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-5311105466084896"
      crossorigin="anonymous"></script>
+     
      **HOW TO GET STARTED**
 At this point it may seem rigorous (worry not, friend!) I have provided astep by step plan that you can implement, that is if making millions a month is not too small for you (lol)
 Here's how you can get started:
