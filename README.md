@@ -1,6 +1,6 @@
 **HOW TO INVEST IN MAJOR COMPANIES**
 
-The year is 2025, and people are looking for waysto increase income. Trending ways are remotejobs, online paying sites and a few more. However, here is a secret many don't know, you can make millions from investing in companies.
+The year is 2025, and people are looking for ways to increase income. Trending ways are remotejobs, online paying sites and a few more. However, here is a secret many don't know, you can make millions from investing in companies.
 
 If you want to up your finance game and start making money in six figures instead of a $20-$100 p/h online job
 How did Elon Musk get to where he is today at the top of the ladder? I'll tell you how, by investing in Companies, buying shares. I too recently just started (about four months) and already i am making hundreds of thousands of dollars a month. And to think that I started my investment with what I had saved (which wasn't much at all). A few months down the line, I am practically making money in my sleep!
@@ -46,6 +46,7 @@ Let's say for instance,the company you wish to invest in is J and Co, a construc
 
 And that's basically the run down of things. You startmaking your money from investment!
 This is basically, making your money make more money for you, asyou earn even in your sleep,literally!
+
 For more tips on increasing your income, follow me on Pinterest @ Diridavid
 
 Yours financially,
