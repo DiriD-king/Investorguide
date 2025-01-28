@@ -1,4 +1,5 @@
 **HOW TO INVEST IN MAJOR COMPANIES**
+
 The year is 2025, and people are looking for waysto increase income. Trending ways are remotejobs, online paying sites and a few more. However, here is a secret many don't know, you can make millions from investing in companies.
 
 If you want to up your finance game and start making money in six figures instead of a $20-$100 p/h online job
